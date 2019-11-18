@@ -1,4 +1,4 @@
-  RING ONCE FOR DEATH
+                         RING ONCE FOR DEATH
 
 
                            BY ROBERT ARTHUR
